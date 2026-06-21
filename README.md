@@ -6,7 +6,7 @@ sometimes I build them back.
 
 
 
- Currently - Somewhere in the dark,breaking in 🔭
+ Currently - Somewhere in the dark,breaking in 🔭.
  Based in  India .
 
 
