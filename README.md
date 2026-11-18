@@ -1,6 +1,6 @@
 
 
-https://github.com/user-attachments/assets/4e0c0bf0-4859-4a78-888c-59d5502df04e
+https://github.com/user-attachments/assets/b6d6924a-d38c-4c41-b46f-b8c02d8bd918
 
 ## Hi there 👋
 I'm 0x-ryo.
