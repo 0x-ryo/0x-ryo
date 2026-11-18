@@ -1,7 +1,5 @@
 
 
-https://github.com/user-attachments/assets/b6d6924a-d38c-4c41-b46f-b8c02d8bd918
-
 ## Hi there 👋
 I'm 0x-ryo.
 
